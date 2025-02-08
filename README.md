@@ -1,6 +1,6 @@
 - 👋 Hi, We are 𝑰𝑲 𝐽𝑶𝑵𝑲𝑬𝑵𝑺 𝑴𝑬𝑫𝑰𝑨 𝑻𝑒𝒄𝒉𝒏𝒐𝒍𝒐𝐠𝒊𝑒𝐬ᵘᴳ![1000196250](https://github.com/user-attachments/assets/dd2a201f-9215-4f66-ad2d-c900fa6dd208)
 
-- 👀 We are interested in quantum science and quatum Technology and more...![1000273029](https://github.com/user-attachments/assets/f08b5055-e0f5-4cf6-94dc-05fe640b8928)
+- 👀 We are interested in quantum science and quantum Technology and more...![1000273029](https://github.com/user-attachments/assets/f08b5055-e0f5-4cf6-94dc-05fe640b8928)
 ![1000273034](https://github.com/user-attachments/assets/fc44cda8-784f-41ee-af78-6c61c1475591)
 ![1000273027](https://github.com/user-attachments/assets/b49c6e7c-b83a-4dce-987d-add6cddd4ed5)
 
@@ -19,12 +19,6 @@
 - Call: +256705690330/+256776923770
 - Email: ikaweesaj@gmail.com kaweesaisaacug@gmail.com www.isaackaweesa87@gmail.com hamtechnologiesug@gmail.com bombardiertoursandtravel1@gmail.com 
 - 😄 Pronouns: We are are small youths group.
-- ⚡ Fun fact: _Have you ever seen a woman/girl urinating on a burning flame like men do...!?_
-<!!!_____Never seen any nice our childhood_____!![1000171537](https://github.com/user-attachments/assets/98e8ebc7-314b-42ed-b398-c43bbdf43405)
-![1000171540](https://github.com/user-attachments/assets/b7128937-3976-421d-b404-65cab3e764bd)
-![1000171539](https://github.com/user-attachments/assets/cca02777-de8a-4e4f-abea-b5df6e523e03)
-![1000171538](https://github.com/user-attachments/assets/bbaf5e39-2193-4cfb-80d1-c7d48ce315e9)
-
 ik-jonkens/ik-jonkens is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
