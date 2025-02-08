@@ -1,8 +1,14 @@
 - 👋 Hi, We are 𝑰𝑲 𝐽𝑶𝑵𝑲𝑬𝑵𝑺 𝑴𝑬𝑫𝑰𝑨 𝑻𝑒𝒄𝒉𝒏𝒐𝒍𝒐𝐠𝒊𝑒𝐬ᵘᴳ!
 
+![Quantum AI in Business](https://example.com/quantum_ai_business.jpg)
+
 - 👀 We are interested in quantum science and quantum technology and more...
 
+![Modern Science Technology](https://example.com/modern_science_technology.jpg)
+
 - 🌱 We are currently learning more about astrophysics, innovative quantum AI, and more science in technology.
+
+![Networking](https://example.com/networking.jpg)
 
 - 💞️ We're looking to collaborate on reaching our common goal in AI and science.
 
